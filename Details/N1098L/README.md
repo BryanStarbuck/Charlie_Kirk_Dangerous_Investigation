@@ -2,9 +2,9 @@
 
 # Drone Plane N1098L at UVU
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=dlMMD-5L1Kc&feature=youtu.be) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=dlMMD-5L1Kc&feature=youtu.be)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026285039219339629) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026285039219339629)
 
 Charlie & UVU & Drones (Plane for launching Military Drones).
 
@@ -34,4 +34,4 @@ Critical to See:
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026285039219339629)

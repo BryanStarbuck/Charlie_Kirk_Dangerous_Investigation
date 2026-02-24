@@ -2,9 +2,9 @@
 
 # Full Discovery Analysis
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=5M0tH82oyzc) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=5M0tH82oyzc)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026335302391136557) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026335302391136557)
 
 
 BIG SECRET: She says the Quiet Part out Loud... "evil Do-ERs" (Plural).  She only said it once but I think it was intentional.  He speech below happened in 55 hours after. (Speech 9/12/2025 @ 9:09pm ET).
@@ -35,4 +35,4 @@ Now during the trial, they have to hand that over to defense. Now the FBI and mo
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026335302391136557)

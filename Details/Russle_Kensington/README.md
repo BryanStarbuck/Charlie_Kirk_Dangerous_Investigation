@@ -5,9 +5,9 @@
 Russle Kensington: Charlie Kirk UVU. The Day after
 
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=60dlVrZDvso) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=60dlVrZDvso)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026312963704127664) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026312963704127664)
 
 Russle Kensington: Charlie Kirk UVU. The Day after  Critical to See: * My name is Bryan Starbuck * I (Bryan Starbuck) am calling on Thomas Massie to create a CHARLIE KIRK FILES DISCLOSURE, which I wrote up here: * https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose
 
@@ -23,4 +23,4 @@ Critical to See:
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026312963704127664)

@@ -5,9 +5,9 @@
 The Pellet Gun Guy — Silencer on an Air Gun Near Charlie Kirk Event | Distraction People #2
 
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=0ypTlz84mc8) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=0ypTlz84mc8)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026320176283849005) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026320176283849005)
 
 In this video, we examine Distraction Person #2 from the Charlie Kirk investigation — the Pellet Gun Guy. This one has some uniquely interesting details that nobody else has covered.
 Critical to See:
@@ -67,4 +67,4 @@ If you find this valuable, please LIKE, SUBSCRIBE, and especially REPOST/SHARE. 
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026320176283849005)

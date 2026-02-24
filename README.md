@@ -1,8 +1,21 @@
 # Charlie_Kirk_Dangerous_Investigation
 
-My name is Bryan Starbuck. 
+My name is Bryan Starbuck. The following are my contributions and what I think are critical parts of the Charlie Kirk investigation to be made public.
 
-The following are what I think are critical parts of the Charlie Kirk investigation to be made public.
+## Investigation Topics
+
+* [Australian Gold Stolen](Details/Australlian_Gold_Stolen/README.md)
+* [FBI Redirected Police to Cafe](Details/Cafe_in_Building/README.md)
+* [Chain of Evil - Intelligence Control Map](Details/m_Chain_of_Evil/README.md)
+* [Discovery Request Problems](Details/Discovery_1/README.md)
+* [Discovery Part 2](Details/Discovery_2/README.md)
+* [Drone Plane N1098L at UVU](Details/N1098L/README.md)
+* [Erika Says "Evil Do-ERs"](Details/Erika_Evil_Doers/README.md)
+* [Full Discovery Analysis](Details/FULL_Discovery_1/README.md)
+* [George Zinn White Rabbit Distraction](Details/George_Zinnn/README.md)
+* [Gun Couldn't Fit - Why It Isn't Tyler](Details/Gun_Pants/README.md)
+* [Pellet Gun Silencer Decoy](Details/Pellet_Gun_Guy/README.md)
+* [Russle Kensington - The Day After](Details/Russle_Kensington/README.md)
 
 
 My name is Bryan Starbuck.  I ask Thomas Massie, who created the Epstein Files Forced Disclosure law... to create a parallel law "Charlie Kirk FILES Forced Disclosure Law".
@@ -22,17 +35,4 @@ Much is posted on my Twitter accounts:
 * [https://x.com/BryanStarbuck](https://x.com/BryanStarbuck)
 * [https://x.com/HolonCitizen](https://x.com/HolonCitizen)
 
-## Investigation Topics
-
-* [Australian Gold Stolen](Details/Australlian_Gold_Stolen/README.md)
-* [FBI Redirected Police to Cafe](Details/Cafe_in_Building/README.md)
-* [Chain of Evil - Intelligence Control Map](Details/m_Chain_of_Evil/README.md)
-* [Discovery Request Problems](Details/Discovery_1/README.md)
-* [Discovery Part 2](Details/Discovery_2/README.md)
-* [Drone Plane N1098L at UVU](Details/N1098L/README.md)
-* [Erika Says "Evil Do-ERs"](Details/Erika_Evil_Doers/README.md)
-* [Full Discovery Analysis](Details/FULL_Discovery_1/README.md)
-* [George Zinn White Rabbit Distraction](Details/George_Zinnn/README.md)
-* [Gun Couldn't Fit - Why It Isn't Tyler](Details/Gun_Pants/README.md)
-* [Pellet Gun Silencer Decoy](Details/Pellet_Gun_Guy/README.md)
-* [Russle Kensington - The Day After](Details/Russle_Kensington/README.md)
+[![Chain of Evil Map](MAP.jpg)](https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose)

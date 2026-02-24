@@ -1,10 +1,10 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-# Discovery Request Problems
+# Discovery Request Problems (#1 of 2)
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=yOQ_lG--3bk&t=1s) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=yOQ_lG--3bk&t=1s)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026327997251551232) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026327997251551232)
 
 
 
@@ -70,4 +70,4 @@ And so you'll see a lot of this analysis I do in the Charlie Kirk investigation,
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026327997251551232)

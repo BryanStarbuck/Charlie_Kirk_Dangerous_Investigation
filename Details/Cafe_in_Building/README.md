@@ -5,9 +5,9 @@
 Charlie Kirk: Distraction at Sorenson Molecular Biotech building. At or after CK killed. Different university BUT the FBI sent police because they said an APB was out for the CK shooter.
 
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=BTFjp343Hvo) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=BTFjp343Hvo)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026308047292002601) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026308047292002601)
 
 
 The Cafe in the Building — FBI Redirected Police During Charlie Kirk Event | Distraction People #3
@@ -108,4 +108,4 @@ My other videos are shown here. Here's the first video. Here's the second video,
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026308047292002601)

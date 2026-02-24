@@ -2,9 +2,9 @@
 
 # Erika Says "Evil Do-ERs"
 
-[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=j8krfDUkhE4) <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=j8krfDUkhE4)
 
-[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026283251745403046) <== Important
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026283251745403046)
 
 
 
@@ -19,4 +19,4 @@ Very strange she would be "announced" CEO 8 days later.  Could "negotiations" ne
 
 ## Slides
 
-![Slide 1](slide_1.jpeg)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026283251745403046)
