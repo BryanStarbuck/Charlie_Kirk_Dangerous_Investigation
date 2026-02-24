@@ -1,6 +1,6 @@
 # Charlie_Kirk_Dangerous_Investigation
 
-My name is Bryan Starbuck. I think my life is at risk. Either to be setup to go to the grave early, or legally setup. I will not commit suicide. I also worry I will be taken-out, in the legal system.
+My name is Bryan Starbuck. I think my life is at risk. Either to be setup to go to the grave early, or legally setup. I will not commit suicide. I also worry I will be taken-out, in the legal system. ([Here is why I worry](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare))
 
 The following are what I think are critical parts of the Charlie Kirk investigation to be made public.
 
