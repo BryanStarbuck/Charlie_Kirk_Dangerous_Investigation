@@ -4,16 +4,16 @@ My name is Bryan Starbuck. The following are my contributions and what I think a
 
 ## Investigation Topics
 
-* [FBI Redirected Police to Cafe](Details/Cafe_in_Building/README.md)
+* [Full Discovery Analysis](Details/FULL_Discovery_1/README.md)
+* [Gun Couldn't Fit - Why It Isn't Tyler](Details/Gun_Pants/README.md)
 * [Chain of Evil - Intelligence Control Map](Details/m_Chain_of_Evil/README.md)
 * [Discovery Request Problems](Details/Discovery_1/README.md)
 * [Discovery Part 2](Details/Discovery_2/README.md)
+* [Pellet Gun Silencer Decoy](Details/Pellet_Gun_Guy/README.md)
 * [Drone Plane N1098L at UVU](Details/N1098L/README.md)
 * [Erika Says "Evil Do-ERs"](Details/Erika_Evil_Doers/README.md)
-* [Full Discovery Analysis](Details/FULL_Discovery_1/README.md)
+* [FBI Redirected Police to Cafe](Details/Cafe_in_Building/README.md)
 * [George Zinn White Rabbit Distraction](Details/George_Zinnn/README.md)
-* [Gun Couldn't Fit - Why It Isn't Tyler](Details/Gun_Pants/README.md)
-* [Pellet Gun Silencer Decoy](Details/Pellet_Gun_Guy/README.md)
 * [Russle Kensington - The Day After](Details/Russle_Kensington/README.md)
 
 Not Charlie Kirk. However, if _ALL_ USA Gold owned by USA citizens (Fort Knox) has been sold many times over to other people, in a hidden fraud... Then the massive damage happens when disclosure happens and a massive drop in the US Dollar would happen.  This would be the biggest fraud in the last 400 years. If TRUE, it would be carried out by the head of the Federal Reserve. It would be an attack on ALL US citizens (where FTX / Enron were not). This video explains why this uncovering of Alan Greenspan's statement may be the proof this happened. HINT: Elon Musk in 2025 asked for a Gold Audit at Fork Knox and was OUT of government nearly immediately after.
