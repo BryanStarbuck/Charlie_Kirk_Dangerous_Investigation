@@ -18,7 +18,6 @@ Critical to See:
 * I (Bryan Starbuck) am calling on Thomas Massie to create a CHARLIE KIRK FILES DISCLOSURE, which I wrote up here:
 * https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose
 * My Full CK Investigation: https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 
 
 ## Slides

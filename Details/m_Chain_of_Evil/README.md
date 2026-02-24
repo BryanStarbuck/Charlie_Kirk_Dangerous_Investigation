@@ -10,7 +10,6 @@ CharlieK 9/10 was about removing DEMOCRACY and replacing it from an Intelligence
 
 Critical to See:
 * https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 * https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
 * My name is Bryan Starbuck
 

@@ -7,7 +7,7 @@ US Gold: THIS IS CRITICAL.  Below appears to be about Australia and their gold. 
 
 [YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=Xugde_TC1-U)
 
- https://x.com/HolonCitizen/status/2026274629934071978
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026274629934071978)
 
 
  
@@ -37,7 +37,7 @@ M
 
 ## Slides
 
-[![Slide 1](slide_1.jpeg)](https://www.youtube.com/watch?v=Xugde_TC1-U)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026274629934071978)
 
 [![Slide 2](slide_2.jpeg)](https://www.youtube.com/watch?v=Xugde_TC1-U)
 

@@ -57,7 +57,6 @@ If you find this valuable, please LIKE, SUBSCRIBE, and especially REPOST/SHARE. 
 
 Critical to See:
 * https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 * I worry I will be disposed of (into the grave or legally framed). Below link says why:
 * https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
 * My name is Bryan Starbuck

@@ -30,7 +30,6 @@ Critical to See:
 * My name is Bryan Starbuck
 * https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
 * https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 
 
 

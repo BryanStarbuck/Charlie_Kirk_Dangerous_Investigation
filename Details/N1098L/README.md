@@ -27,7 +27,6 @@ The possible plane crew starts to connect between these.  Details in the video.
 
 Critical to See:
 * https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 * https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
 * My name is Bryan Starbuck
 

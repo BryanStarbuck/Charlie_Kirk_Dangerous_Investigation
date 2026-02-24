@@ -4,7 +4,6 @@ My name is Bryan Starbuck. The following are my contributions and what I think a
 
 ## Investigation Topics
 
-* [Australian Gold Stolen](Details/Australlian_Gold_Stolen/README.md)
 * [FBI Redirected Police to Cafe](Details/Cafe_in_Building/README.md)
 * [Chain of Evil - Intelligence Control Map](Details/m_Chain_of_Evil/README.md)
 * [Discovery Request Problems](Details/Discovery_1/README.md)
@@ -16,6 +15,9 @@ My name is Bryan Starbuck. The following are my contributions and what I think a
 * [Gun Couldn't Fit - Why It Isn't Tyler](Details/Gun_Pants/README.md)
 * [Pellet Gun Silencer Decoy](Details/Pellet_Gun_Guy/README.md)
 * [Russle Kensington - The Day After](Details/Russle_Kensington/README.md)
+
+Not Charlie Kirk. However, if _ALL_ USA Gold owned by USA citizens (Fort Knox) has been sold many times over to other people, in a hidden fraud... Then the massive damage happens when disclosure happens and a massive drop in the US Dollar would happen.  This would be the biggest fraud in the last 400 years. If TRUE, it would be carried out by the head of the Federal Reserve. It would be an attack on ALL US citizens (where FTX / Enron were not). This video explains why this uncovering of Alan Greenspan's statement may be the proof this happened. HINT: Elon Musk in 2025 asked for a Gold Audit at Fork Knox and was OUT of government nearly immediately after.
+* [Australian Gold Stolen](Details/Australlian_Gold_Stolen/README.md)
 
 
 My name is Bryan Starbuck.  I ask Thomas Massie, who created the Epstein Files Forced Disclosure law... to create a parallel law "Charlie Kirk FILES Forced Disclosure Law".

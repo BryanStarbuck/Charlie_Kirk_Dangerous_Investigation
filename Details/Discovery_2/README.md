@@ -10,4 +10,4 @@
 
 ## Slides
 
-[![Slide 1](slide_1.jpeg)](https://www.youtube.com/watch?v=6JjLttvo7Ms&t=89s)
+[![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026327997251551232)

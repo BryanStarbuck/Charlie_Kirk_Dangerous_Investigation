@@ -19,7 +19,6 @@ Tyler Robinson got gun to UVU.  This PROVES, either: 1) More people were involve
 
 Critical to See:
 * https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Charlie_Kirk_Dangerous_Investigation
 * https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
 * My name is Bryan Starbuck
 
