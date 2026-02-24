@@ -1,10 +1,10 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=jv-X2VXk3zA&t=1s
+# Chain of Evil - Intelligence Control Map
 
-X Discussion & Video & Post HERE <== Important
-https://x.com/HolonCitizen/status/2026288669745885484
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=jv-X2VXk3zA&t=1s) <== Important
+
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026288669745885484) <== Important
 
 CharlieK 9/10 was about removing DEMOCRACY and replacing it from an Intelligence-Service Controlled Government. I show how CK 9/10 expose this. This goes through the Chain-of-Control map. This shows CK and all other parts in the map.   I have fixes coming that I will post on this HolonCitizen X account.
 

@@ -1,13 +1,13 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
+# George Zinn White Rabbit Distraction
+
 George Zinn - "White Rabbit" Distraction in Charlie Kirk.
 
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=q8nnuG8bAL0
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=q8nnuG8bAL0) <== Important
 
-X Discussion & Video & Post HERE <== Important
-https://x.com/HolonCitizen/status/2026309211156844855
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026309211156844855) <== Important
 
 
 In intelligence operations, "white rabbits" (decoy rabbits) are used to distract attention at critical moments. George Zinn fits this pattern in the Charlie Kirk investigation.

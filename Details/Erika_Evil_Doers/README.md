@@ -1,10 +1,10 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=j8krfDUkhE4
+# Erika Says "Evil Do-ERs"
 
-X Discussion & Video & Post HERE <== Important
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=j8krfDUkhE4) <== Important
 
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026283251745403046) <== Important
 
 
 

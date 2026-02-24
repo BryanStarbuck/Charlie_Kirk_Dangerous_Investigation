@@ -1,10 +1,10 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=yOQ_lG--3bk&t=1s
+# Discovery Request Problems
 
-X Discussion & Video & Post HERE <== Important
-https://x.com/HolonCitizen/status/2026327997251551232
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=yOQ_lG--3bk&t=1s) <== Important
+
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026327997251551232) <== Important
 
 
 

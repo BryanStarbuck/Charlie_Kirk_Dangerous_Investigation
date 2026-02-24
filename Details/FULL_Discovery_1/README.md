@@ -1,10 +1,10 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=5M0tH82oyzc
+# Full Discovery Analysis
 
-X Discussion & Video & Post HERE <== Important
-https://x.com/HolonCitizen/status/2026335302391136557
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=5M0tH82oyzc) <== Important
+
+[X Discussion & Video & Post HERE](https://x.com/HolonCitizen/status/2026335302391136557) <== Important
 
 
 BIG SECRET: She says the Quiet Part out Loud... "evil Do-ERs" (Plural).  She only said it once but I think it was intentional.  He speech below happened in 55 hours after. (Speech 9/12/2025 @ 9:09pm ET).

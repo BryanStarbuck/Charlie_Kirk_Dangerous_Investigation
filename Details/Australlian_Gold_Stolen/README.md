@@ -1,7 +1,8 @@
 [Top of Charlie Kirk Investigation](../README.md)
 
-YOUTUBE VIDEO HERE <== Important
-https://www.youtube.com/watch?v=Xugde_TC1-U
+# Australian Gold Stolen
+
+[YOUTUBE VIDEO HERE](https://www.youtube.com/watch?v=Xugde_TC1-U) <== Important
 
 ## Slides
 
