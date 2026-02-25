@@ -28,10 +28,17 @@ Repost if you find this valuable. Censorship on this topic is aggressive. Full d
 
 Critical to See:
 * My name is Bryan Starbuck
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
-* https://youtube.com/@HolonCitizen
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
 
 
+
+## See Also
+
+* [Pellet Gun Silencer Decoy](../Pellet_Gun_Guy/README.md) — Distraction Person #2, another white rabbit
+* [FBI Redirected Police to Cafe](../Cafe_in_Building/README.md) — Distraction Person #3, FBI directing police away
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — the intelligence service chain of control
+* [Drone Plane N1098L at UVU](../N1098L/README.md) — what was happening while police were distracted
 
 ## Slides
 

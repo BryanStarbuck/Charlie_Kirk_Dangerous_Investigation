@@ -26,12 +26,12 @@ The PROOF term is this person who heard personally from Alan Greenspan the part 
 * Bottom two links are 100 years of gold price.  The massive increase in 1980s and 1990s is the first tell tail sign. The second in in the last 18 months, gold has doubled in price.  More info on this is getting closer to coming out.
 
 My life may be at risk (of death or legally-taken-out). More info here:
-https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+[Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 
 Gold charts with the tell tail signs.
-https://macrotrends.net/datasets/1333/historical-gold-prices-100-year-chart
+[Historical Gold Prices - 100 Year Chart](https://macrotrends.net/datasets/1333/historical-gold-prices-100-year-chart)
 
-https://bullionvault.com/gold-price-chart.do
+[Gold Price Chart](https://bullionvault.com/gold-price-chart.do)
 
 M
 

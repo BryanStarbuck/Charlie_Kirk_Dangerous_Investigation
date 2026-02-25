@@ -14,10 +14,10 @@ Critical to See:
 
 * My name is Bryan Starbuck
 * I (Bryan Starbuck) am calling on Thomas Massie to create a CHARLIE KIRK FILES DISCLOSURE, which I wrote up here:
-* https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+* [~175 Critical things in a "Charlie Kirk: LAW to force disclosure"](https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose)
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 * I am having to release a LONG list of my investigation today on my X and YouTube account, that hasn't be released before.
-* My Full CK Investigation: https://youtube.com/@HolonCitizen
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
 
 This individual was arrested about 11 minutes north of UVU, where the Charlie Kirk event took place. He was carrying an airsoft or pellet gun — not a rifle. But here is the detail that jumps out: someone put a silencer on it. You do not need a silencer on an air gun. They are already quiet. There is no explosion, no gunpowder. The silencer serves no functional purpose — except to look scary and grab maximum attention. That is exactly what a "white rabbit" decoy is designed to do.
 
@@ -63,6 +63,13 @@ COMING SOON:
 - A documentary film on the full investigation
 If you find this valuable, please LIKE, SUBSCRIBE, and especially REPOST/SHARE. I am heavily censored on these topics and your shares are the only way this information reaches people.
 
+
+## See Also
+
+* [George Zinn White Rabbit Distraction](../George_Zinnn/README.md) — Distraction Person #1, another white rabbit
+* [FBI Redirected Police to Cafe](../Cafe_in_Building/README.md) — Distraction Person #3, FBI directing police away
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — the intelligence service chain of control
+* [Discovery Request Problems](../Discovery_1/README.md) — why these distraction patterns matter for the trial
 
 ## Slides
 

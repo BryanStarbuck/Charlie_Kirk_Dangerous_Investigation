@@ -17,6 +17,12 @@ Important:
 * I think foreign interests decided to allow her to be CEO of TPUSA, but she had to stop the "evil Do-ERs" (Plural).
 Very strange she would be "announced" CEO 8 days later.  Could "negotiations" need to happen before foreign interests decided she was "safe"?  If not, why take 8 days?
 
+## See Also
+
+* [Full Discovery Analysis](../FULL_Discovery_1/README.md) — includes the Erika "evil Do-ERs" analysis in the discovery context
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — the intelligence service chain of control behind this
+* [Discovery Request Problems](../Discovery_1/README.md) — what's missing from the legal discovery
+
 ## Slides
 
 [![Slide 1](slide_1.jpeg)](https://x.com/HolonCitizen/status/2026283251745403046)

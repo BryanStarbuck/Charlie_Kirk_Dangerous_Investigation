@@ -26,10 +26,17 @@ See these link together: (Video gives details and explains)
 The possible plane crew starts to connect between these.  Details in the video.
 
 Critical to See:
-* https://youtube.com/@HolonCitizen
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 * My name is Bryan Starbuck
 
+
+## See Also
+
+* [Discovery Request Problems](../Discovery_1/README.md) — drone footage and surveillance missing from discovery
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — how this connects to the intelligence chain of control
+* [FBI Redirected Police to Cafe](../Cafe_in_Building/README.md) — FBI involvement during the event
+* [George Zinn White Rabbit Distraction](../George_Zinnn/README.md) — distraction operations happening simultaneously
 
 ## Slides
 

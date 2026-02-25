@@ -14,12 +14,12 @@ This is the case where the defense attorneys went off and submitted what they re
 
 Critical to See:
 * I worry I will be disposed of (into the grave or legally framed). Below link says why:
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 * My name is Bryan Starbuck
 * I (Bryan Starbuck) am calling on Thomas Massie to create a CHARLIE KIRK FILES DISCLOSURE, which I wrote up here:
-* https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose
+* [~175 Critical things in a "Charlie Kirk: LAW to force disclosure"](https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose)
 * I am having to release a LONG list of my investigation today on my X and YouTube account, that hasn't be released before.
-* My Full CK Investigation: https://youtube.com/@HolonCitizen
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
 
 I've been going over the legal documents and specifically over the request for discovery. And this is where I think we have a very clear documented problem. And unless I'm interpreting this incorrectly, anyone can try to let me know if they see otherwise.
 
@@ -66,6 +66,17 @@ What I'm doing is having my programming background — have a lot of programming
 And then I'll show one more thing. My day job is on an AI company — I'm the founder CEO and I'm building AI to do filmmaking. It's http://Act3AI.com, and I'll be using this in the Charlie Kirk investigation. So it's a very fast way to just type in "he said this, she said that," it pops into a script and immediately films, and it goes through whether it's a real movie or the cartoon mode I have it in right now.
 
 And so you'll see a lot of this analysis I do in the Charlie Kirk investigation, and you'll see that we'll create content here to go through important parts of the investigation. And my background here of my day job to create the filmmaking here will be useful for the Charlie Kirk thing, but my programming background here with the AI will be important to write the scripts to basically act as a hundred attorneys analyzing the court case as soon as documents come out and process those to find out where there are missing parts of it. So you will see that in my coverage, and you'll see that on the Twitter page.
+
+## See Also
+
+* [Discovery Part 2](../Discovery_2/README.md)
+* [Full Discovery Analysis](../FULL_Discovery_1/README.md)
+* [Drone Plane N1098L at UVU](../N1098L/README.md) — the surveillance plane and drone footage referenced above
+* [Gun Couldn't Fit - Why It Isn't Tyler](../Gun_Pants/README.md) — more proof Tyler wasn't the lone shooter
+* [George Zinn White Rabbit Distraction](../George_Zinnn/README.md) — Distraction Person #1
+* [Pellet Gun Silencer Decoy](../Pellet_Gun_Guy/README.md) — Distraction Person #2
+* [FBI Redirected Police to Cafe](../Cafe_in_Building/README.md) — Distraction Person #3
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — the intelligence service chain of control
 
 ## Slides
 

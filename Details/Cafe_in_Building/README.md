@@ -56,9 +56,9 @@ COMING SOON:
 If you find this valuable, please LIKE, SUBSCRIBE, and especially REPOST/SHARE. I am heavily censored on these topics and your shares are the only way this information reaches people.
 
 Critical to See:
-* https://youtube.com/@HolonCitizen
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
 * I worry I will be disposed of (into the grave or legally framed). Below link says why:
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 * My name is Bryan Starbuck
 
 This is about the Charlie Kirk investigation. This happened exactly when the event occurred, or within an hour afterwards. The point about this is that intelligence services use a distraction rabbit. It may not be any real criminal, but the goal is to pull police away and distract them. This is to show that police were sent here. They were apparently sent here by the FBI. It was probably a waste of their time, but seeing the details in this video is important because of the specifics that you'll see in the video.
@@ -104,6 +104,14 @@ My other videos are shown here. Here's the first video. Here's the second video,
 
 
 
+
+## See Also
+
+* [George Zinn White Rabbit Distraction](../George_Zinnn/README.md) — Distraction Person #1, another white rabbit
+* [Pellet Gun Silencer Decoy](../Pellet_Gun_Guy/README.md) — Distraction Person #2, pellet gun with silencer
+* [Chain of Evil - Intelligence Control Map](../m_Chain_of_Evil/README.md) — the intelligence service chain of control
+* [Drone Plane N1098L at UVU](../N1098L/README.md) — what was happening while police were redirected
+* [Discovery Request Problems](../Discovery_1/README.md) — why FBI involvement matters for the trial
 
 ## Slides
 

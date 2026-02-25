@@ -13,11 +13,11 @@ Russle Kensington: Charlie Kirk UVU. The Day after  Critical to See: * My name i
 
 Critical to See:
 * I worry I will be disposed of (into the grave or legally framed). Below link says why:
-* https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare
+* [Bryan Starbuck Lawfare](https://github.com/BryanStarbuck/Bryan_Starbuck_Lawfare)
 * My name is Bryan Starbuck
 * I (Bryan Starbuck) am calling on Thomas Massie to create a CHARLIE KIRK FILES DISCLOSURE, which I wrote up here:
-* https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose
-* My Full CK Investigation: https://youtube.com/@HolonCitizen
+* [~175 Critical things in a "Charlie Kirk: LAW to force disclosure"](https://github.com/BryanStarbuck/Charlie_Kirk_175_Critical_To_Expose)
+* My Full CK Investigation: [https://youtube.com/@HolonCitizen](https://youtube.com/@HolonCitizen)
 
 
 ## Slides
